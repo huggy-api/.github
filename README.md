@@ -1,3 +1,0 @@
-# Huggy
-
-Coming soon..
